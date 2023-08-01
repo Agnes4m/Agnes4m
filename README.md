@@ -8,7 +8,7 @@
 - 🏠 I’m currently living in Hefei, Anhui, China
 - 🤔 I’m looking for help with ...
 - 📫 How to reach me: [Email@163](mailto:Z735803792@163.com) [Email@outlook](mailto:agnes.digital@outlook.com) | QQ:735803792 | [QQ Group](https://jq.qq.com/?_wv=1027&k=HdjoCcAe) | [Kook](https://kook.top/BwuSMo)
-🤝 Support me: [AFDian](https://afdian.net/a/agnes_digital)
+- 🤝 Support me: [AFDian](https://afdian.net/a/agnes_digital)
 
 ![visits](https://count.getloli.com/get/@Agnes4m?theme=rule15)
 
