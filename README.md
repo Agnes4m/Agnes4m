@@ -5,9 +5,15 @@
 
 - 🔭 I’m currently working on office
 - 🌱 I’m currently learning Python
-- 🏠 I’m currently living in Hefei, Anhui, China
-- 🤔 I’m looking for help with ...
-- 📫 How to reach me: [Email@163](mailto:Z735803792@163.com) [Email@outlook](mailto:agnes.digital@outlook.com) | QQ:735803792 | [QQ Group](https://jq.qq.com/?_wv=1027&k=HdjoCcAe) | [Kook](https://kook.top/BwuSMo)
+- 🏠 I’m currently living in Anhui, China
+- 🤔 I’m looking for help with my really friend
+- 📫 How to reach me | 可以通过以下渠道联系我:
+  - [Email@163](mailto:Z735803792@163.com) | [Email@outlook](mailto:agnes.digital@outlook.com)
+  - QQ:735803792 | [QQ Group](https://jq.qq.com/?_wv=1027&k=HdjoCcAe) (active)
+  - Kook: [Group](https://kook.top/BwuSMo)
+  - Discord: [Group](https://discord.com/invite/XrPHKaR2N3)
+  - Telegram: [Group](https://t.me/+104LOS4NqukxOTQ1)
+  - oopz: [Group](https://oopz.cn/i/4JttK2)
 - 🤝 Support me: [AFDian](https://afdian.net/a/agnes_digital)
 
 ![visits](https://count.getloli.com/get/@Agnes4m?theme=rule15)
