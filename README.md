@@ -14,7 +14,7 @@
   - Discord: [Group](https://discord.com/invite/XrPHKaR2N3)
   - Telegram: [Group](https://t.me/+104LOS4NqukxOTQ1)
   - oopz: [Group](https://oopz.cn/i/4JttK2)
-- 🤝 Support me: [AFDian](https://afdian.net/a/agnes_digital)
+- 🤝 Support me: [AFDian](https://ifdian.net//a/agnes_digital)
 
 ![visits](https://count.getloli.com/get/@Agnes4m?theme=rule15)
 
